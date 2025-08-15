@@ -2,9 +2,9 @@
 # Free-AppleId-Serve
 [【小火箭免费共享账号每日更新】](https://docs.applexp.com/free-accounts/Shadowrocket)
 
-苹果AppleID独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入】](https://juzixp.com)
+苹果AppleID独享账号（小火箭独享账号，苹果各国ID，等各类账号）[【点击进入】](https://shop.muooy.com)
 
-Shadowrocket（小火箭）共享账号地址：[【 点击进入】](https://juzixp.com/buy/21)
+Shadowrocket（小火箭）共享账号地址：[【 点击进入】](https://shop.muooy.com/buy/21)
 
 [App Store 美区礼品卡 $3](https://shop.muooy.com/buy/31) | [App Store 美区礼品卡 $10](https://shop.muooy.com/buy/33) | [App Store 港区礼品卡 HK$50](https://shop.muooy.com/buy/39)
 
